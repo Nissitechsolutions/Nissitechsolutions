@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nissi Peter,
+👋 Hi, I’m Nissi Peter,
   
 An experienced front-end developer with a proven track record, I've consistently delivered exceptional results throughout my career. My expertise and contributions in the field have earned me a reputation for excellence.
 
