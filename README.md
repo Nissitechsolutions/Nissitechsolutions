@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nissi Peter
-As an experienced front-end developer with a proven track record, I've consistently delivered exceptional results throughout my career. My expertise and contributions in the field have earned me a reputation for excellence.
+An experienced front-end developer with a proven track record, I've consistently delivered exceptional results throughout my career. My expertise and contributions in the field have earned me a reputation for excellence.
 
 Across diverse domains, I excel in enhancing online visibility and driving organic traffic through Search Engine Optimization (SEO). My strategic approach to Digital Marketing, particularly in Facebook Advertising and Google Ads, enables me to create captivating campaigns tailored to resonate with target audiences.
 
